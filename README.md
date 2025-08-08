@@ -1,4 +1,4 @@
-Jasmeet Singh IT 
+Krish Khanna , IT B
 # Induction Program [img](https://photos.app.goo.gl/WStUtskhR9jKans99)
 
 ## Day1
