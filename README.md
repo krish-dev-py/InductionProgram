@@ -25,3 +25,21 @@ Krish Khanna , IT B
  * we were Introduced to Satya scholarship program by three representative from buddy4study they told about it's benefit and entry requirements and asked us to enroll for it as soon as possible.[img](https://photos.app.goo.gl/CfHP1NStagJEMb4D6)
 4. - Lecture by Dr Arashdeep singh (2 :00 to 3:00 )
  * Dr Arashedeep singh from Punjab Agricultural university give us a lecture on food importance in students life he told us that us we should take health and adequate diet that should help up us to keep our energy levels up and we should not consume those food which are body cannot digest and he also busted some popular food myths.[img](https://photos.app.goo.gl/GBMbiPET2d146MCF8)
+# Day 3
+[img](https://photos.app.goo.gl/5jV6bD2x7KjrfKfW7)
+1. **Lecture by Dr Jasvinder** (9:00 to 11:00 am)
+- We Kick started our third day with lecture on science and Math conducted by Dr jaswinder singh . he begin the lecture with congratulating us on getting admitted to such prestigious college of punjab. then he talked about how everything is created by the god and we all should pray to almighty got then he told us how mathematics is connected to everything in this world by giving us few examples like how is tea made we measure things then add then that is mathematics, mixing of reagents etc then he demonstrated the functioning of waves through straw and tape structure then he told us about relation between ik and god . then he asked us to be respectful,obident to our parent and teachers .then till the end of session he told us many tricks of Math.
+
+[img](https://photos.app.goo.gl/mLMW3buj2exxjcjB6)
+2. **Lecture on UHV** : (11:00 to 1:00)
+- the second lecture on our third day was on Universal human values given by Dr Priya Darshni she taught us the importance about right balance of material needs , relationship, Right understanding and she told us that we should not force ourselves on thinking that we will achieve everything after we reach our goal but that's not true we should be happy and prosperous along the path to our growth she also said we should give time to those that make us happy and the end of lecture she gave us a assignment in which we had to write down the name and amount of time spend on that thing and reflect on it after you see how you spend your time.
+# Day 4
+1. English lecture: (9:30 to 10:30 )
+- the first lecture of our fourth day was english communication taken by professor Aastik Sharma. In the beginning of lecture he given us four questions 3 verbal question in which we have to introduce ourselves , why we choose this college and branch and last question is tell about your weakness and strengths. he given us ten minutes to prepare these questions then after ten minutes he picked some students randomly asked them about answers and the fourth questions was a letter then after the test he explained to us the importance of body language and communication skills as a person who has knowledge but doesn't know how to explain to others then his knowledge is waste.
+2. **CHEMISTRY LECTURE**; ( 10:30 TO 11:30 )
+- This lecturewas taken by professor karan bhalla he is very open minded and friendly when he entered the class he greeted us politely after that he introduced himself then he asked all us about our goals and aspirations. then he told us about  mid semester test and waitage of chemistry and about lab pratical and viva
+3. **Universal human values** : (12:30 to 2:30 )
+- this was our second lecture on universal human values taken by  Dr priya darshini in this session man made provide us some adivce to implemt in our life so that we can make our life better.
+4. **Causmic club** : ( 2:30 to 3:30 ) 
+- during this time our senior introduce us to variou clubs in college like causmic club, cultural committe etc one of our seniors also performed guitar for us. one one told us shayari and also showed us some works of causmic club like reels and fest organised by causmic club like apex,youth parliament etc and told us annual function is organized by cultural committe .
+## End of day 4
