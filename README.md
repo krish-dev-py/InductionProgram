@@ -43,3 +43,23 @@ Krish Khanna , IT B
 4. **Causmic club** : ( 2:30 to 3:30 ) 
 - during this time our senior introduce us to variou clubs in college like causmic club, cultural committe etc one of our seniors also performed guitar for us. one one told us shayari and also showed us some works of causmic club like reels and fest organised by causmic club like apex,youth parliament etc and told us annual function is organized by cultural committe .
 ## End of day 4
+# Day 5
+- At 9:30 AM, **Dr. Parminder Singh** (Dean, Student Welfare) gave an overview of GNDEC-the vision, opportunities, and resources.
+
+- Then **Mr. Manpreet Singh** delivered an electrifying Fitness for Engineers session-motivation, life lessons, and practical tips. Best lecture so far!
+
+- Army Brigadier P. S. Cheema discussed NCC, highlighting discipline, leadership, and patriotism.
+
+- After a break, we ended with an English lecture and a Peer-to-Peer (P2P) session-ending the day inspired (and a bit overwhelmed).
+## Day 5 end
+# Day 6
+- The day began at 9:30 AM with Mathematics by Prof. Sukhwinder Singh-clear explanations that made the numbers click. Then a **Physics session on Lasers-futuristic and fascinating**
+
+- Post-break, Dr. Lakhvir Singh Khanna (in-charge, CML) presented the center's initiatives and skill-development opportunities. We concluded with
+- **Dr. Jasvir Singh Grewal** on NSS, encouraging camps and community service to shape personality and social responsibility.
+## Day6 end
+# Day 7
+- **(Sports, Economics & ID Cards)** We began at 11:00 AM with a session by our senior, Gautam, on **Motor Sports-firsthand experiences made it engaging and informative.
+
+- **Prof. Varinder Singh** linked Economics to Civil Engineering-cost analysis, resource allocation, and project feasibility in real projects.
+## Day 7 end
